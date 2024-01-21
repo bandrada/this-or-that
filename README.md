@@ -4,6 +4,8 @@ Have you ever wondered how many hot dogs it would take to buy the statue of libe
 
 I'd be a little surprised, 
 
-    but now you can find out.. 
+  but now you can find out.. 
+
+
     
-once this this is finished being made at least
+(once this this is finished being made at least)
